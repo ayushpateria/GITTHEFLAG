@@ -15,3 +15,4 @@ Jim told me to chop off the snake’s head and throw it away, and then skin the 
 He said that that would help.  Then I slid out quiet and throwed the snakes clear away amongst the bushes; for I warn’t going to let Jim find out it was all my fault, not if I could help it.
 Jim sucked and sucked at the jug, and now and then he got out of his head and pitched around and yelled; but every time he come to himself he went to sucking at the jug again.  His foot swelled up pretty big, and so did his leg; but by and by the drunk begun to come, and so I judged he was all right; but I’d druther been bit with a snake than pap’s whisky.
 Jim was laid up for four days and nights.  Then the swelling was all gone and he was around again.  
+I made up my mind I wouldn’t ever take a-holt of a snake-skin again with my hands, now that I see what had come of it. 
