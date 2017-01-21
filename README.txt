@@ -31,3 +31,4 @@ Jim hitched it behind with the hooks, and it was a fair fit.  I put on the sun-b
 Jim said nobody would know me, even in the daytime, hardly.  I practiced around all day to get the hang of the things, and by and by I could do pretty well in them, only Jim said I didn’t walk like a girl; and he said I must quit pulling up my gown to get at my britches-pocket.  
 I took notice, and done better.
 I started up the Illinois shore in the canoe just after dark.
+I started across to the town from a little below the ferry-landing, and the drift of the current fetched me in at the bottom of the town. 
