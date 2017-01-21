@@ -1,0 +1,1 @@
+AFTER breakfast I wanted to talk about the dead man and guess out how he come to be killed, but Jim didn’t want to.  He said it would fetch bad luck; and besides, he said, he might come and ha’nt us; he said a man that warn’t buried was
