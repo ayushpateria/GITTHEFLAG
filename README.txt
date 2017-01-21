@@ -25,3 +25,4 @@ Well, the days went along, and the river went down between its banks again; and 
 We split the ball open with the hatchet, and there was a spool in it.  
 Jim said he’d had it there a long time, to coat it over so and make a ball of it.  It was as big a fish as was ever catched in the Mississippi, I reckon.  
 Jim said he hadn’t ever seen a bigger one.  He would a been worth a good deal over at the village.  They peddle out such a fish as that by the pound in the market-house there; everybody buys some of him; his meat’s as white as snow and makes a good fry.
+Next morning I said it was getting slow and dull, and I wanted to get a stirring up some way.  I said I reckoned I would slip over the river and find out what was going on.  
