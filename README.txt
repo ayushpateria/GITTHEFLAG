@@ -6,3 +6,4 @@ I said I reckoned they killed him, too; but Jim didn’t want to talk about that
 “Now you think it’s bad luck; but what did you say when I fetched in the snake-skin that I found on the top of the ridge day before yesterday? You said it was the worst bad luck in the world to touch a snake-skin with my hands.  
 Well, here’s your bad luck!  We’ve raked in all this truck and eight dollars besides.  I wish we could have some bad luck like this every day, Jim.”
 “Never you mind, honey, never you mind.  Don’t you git too peart.  It’s a-comin’.  Mind I tell you, it’s a-comin’.”
+It did come, too.  It was a Tuesday that we had that talk.  Well, after dinner Friday we was laying around in the grass at the upper end of the ridge, and got out of tobacco.  
