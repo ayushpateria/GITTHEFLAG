@@ -16,3 +16,4 @@ He said that that would help.  Then I slid out quiet and throwed the snakes clea
 Jim sucked and sucked at the jug, and now and then he got out of his head and pitched around and yelled; but every time he come to himself he went to sucking at the jug again.  His foot swelled up pretty big, and so did his leg; but by and by the drunk begun to come, and so I judged he was all right; but I’d druther been bit with a snake than pap’s whisky.
 Jim was laid up for four days and nights.  Then the swelling was all gone and he was around again.  
 I made up my mind I wouldn’t ever take a-holt of a snake-skin again with my hands, now that I see what had come of it. 
+Jim said he reckoned I would believe him next time.  And he said that handling a snake-skin was such awful bad luck that maybe we hadn’t got to the end of it yet.  
