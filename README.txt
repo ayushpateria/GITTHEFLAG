@@ -8,3 +8,4 @@ Well, here’s your bad luck!  We’ve raked in all this truck and eight dollars
 “Never you mind, honey, never you mind.  Don’t you git too peart.  It’s a-comin’.  Mind I tell you, it’s a-comin’.”
 It did come, too.  It was a Tuesday that we had that talk.  Well, after dinner Friday we was laying around in the grass at the upper end of the ridge, and got out of tobacco.  
 I went to the cavern to get some, and found a rattlesnake in there.  I killed him, and curled him up on the foot of Jim’s blanket, ever so natural, thinking there’d be some fun when Jim found him there.  
+Well, by night I forgot all about the snake, and when Jim flung himself down on the blanket while I struck a light the snake’s mate was there, and bit him.
