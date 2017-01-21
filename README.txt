@@ -32,3 +32,4 @@ Jim said nobody would know me, even in the daytime, hardly.  I practiced around 
 I took notice, and done better.
 I started up the Illinois shore in the canoe just after dark.
 I started across to the town from a little below the ferry-landing, and the drift of the current fetched me in at the bottom of the town. 
+I tied up and started along the bank.  There was a light burning in a little shanty that hadn’t been lived in for a long time, and 
