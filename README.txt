@@ -33,3 +33,4 @@ I took notice, and done better.
 I started up the Illinois shore in the canoe just after dark.
 I started across to the town from a little below the ferry-landing, and the drift of the current fetched me in at the bottom of the town. 
 I tied up and started along the bank.  There was a light burning in a little shanty that hadn’t been lived in for a long time, and 
+I wondered who had took up quarters there.  I slipped up and peeped in at the window.  There was a woman about forty year old in there knitting by a candle that was on a pine table.  
