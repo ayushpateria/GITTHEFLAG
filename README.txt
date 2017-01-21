@@ -18,3 +18,4 @@ Jim was laid up for four days and nights.  Then the swelling was all gone and he
 I made up my mind I wouldn’t ever take a-holt of a snake-skin again with my hands, now that I see what had come of it. 
 Jim said he reckoned I would believe him next time.  And he said that handling a snake-skin was such awful bad luck that maybe we hadn’t got to the end of it yet.  
 He said he druther see the new moon over his left shoulder as much as a thousand times than take up a snake-skin in his hand.  
+Well, I was getting to feel that way myself, though I’ve always reckoned that looking at the new moon over your left shoulder is one of the carelessest and foolishest things a body can do.  
