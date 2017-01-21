@@ -11,3 +11,4 @@ I went to the cavern to get some, and found a rattlesnake in there.  I killed hi
 Well, by night I forgot all about the snake, and when Jim flung himself down on the blanket while I struck a light the snake’s mate was there, and bit him.
 He jumped up yelling, and the first thing the light showed was the varmint curled up and ready for another spring.  I laid him out in a second with a stick, and Jim grabbed pap’s whisky-jug and begun to pour it down.
 He was barefooted, and the snake bit him right on the heel.  That all comes of my being such a fool as to not remember that wherever you leave a dead snake its mate always comes there and curls around it.  
+Jim told me to chop off the snake’s head and throw it away, and then skin the body and roast a piece of it.  I done it, and he eat it and said it would help cure him. He made me take off the rattles and tie them around his wrist, too.  
