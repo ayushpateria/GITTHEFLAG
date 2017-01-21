@@ -17,3 +17,4 @@ Jim sucked and sucked at the jug, and now and then he got out of his head and pi
 Jim was laid up for four days and nights.  Then the swelling was all gone and he was around again.  
 I made up my mind I wouldn’t ever take a-holt of a snake-skin again with my hands, now that I see what had come of it. 
 Jim said he reckoned I would believe him next time.  And he said that handling a snake-skin was such awful bad luck that maybe we hadn’t got to the end of it yet.  
+He said he druther see the new moon over his left shoulder as much as a thousand times than take up a snake-skin in his hand.  
