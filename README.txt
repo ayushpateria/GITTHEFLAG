@@ -9,3 +9,4 @@ Well, here’s your bad luck!  We’ve raked in all this truck and eight dollars
 It did come, too.  It was a Tuesday that we had that talk.  Well, after dinner Friday we was laying around in the grass at the upper end of the ridge, and got out of tobacco.  
 I went to the cavern to get some, and found a rattlesnake in there.  I killed him, and curled him up on the foot of Jim’s blanket, ever so natural, thinking there’d be some fun when Jim found him there.  
 Well, by night I forgot all about the snake, and when Jim flung himself down on the blanket while I struck a light the snake’s mate was there, and bit him.
+He jumped up yelling, and the first thing the light showed was the varmint curled up and ready for another spring.  I laid him out in a second with a stick, and Jim grabbed pap’s whisky-jug and begun to pour it down.
